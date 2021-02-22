@@ -1,1 +1,1 @@
-# Proyecto_kriger_num
+# Proyecto_kruger_num
